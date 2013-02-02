@@ -3,7 +3,7 @@ servis
 
 Servis Adana
 http://www.servisadana.com/ Servis Adana
-http://www.servisadana.com/markalar/arcelik-servis-adana/adana-arcelik-servisi-12.htm Adana Arçelik Servisi">Adana Arçelik Servisi</a
+http://www.servisadana.com/markalar/arcelik-servis-adana/adana-arcelik-servisi-12.htm Adana Arçelik Servisi Adana Arçelik Servisi
 http://www.servisadana.com/markalar/beko-servis-adana/adana-beko-servisi-42.htm Adana Beko Servisi
 http://www.servisadana.com/markalar/bosch-servis-adana/adana-bosch-servisi-10.htm Adana Bosch Servisi
 http://www.servisadana.com/hizmetler/klima-servis-adana/adana-klima-servisi-61.htm Adana Klima Servisi
@@ -15,7 +15,7 @@ http://www.servisadana.com/markalar/indesit-servis-adana/adana-indesit-servisi-1
 http://www.servisadana.com/markalar/altus-servis-adana/adana-altus-servisi-100.htm Adana Altus Servisi
 http://www.servisadana.com/markalar/ariston-servis-adana/adana-ariston-servisi-96.htm Adana Ariston Servisi
 http://www.servisadana.com/markalar/lg-servis-adana/adana-lg-servisi-167.htm Adana LG Servisi
-http://www.servisadana.com/markalar/gaggenau-servis-adana/adana-gaggenau-servis-162.htm Adana Gaggenau Servis">Adana Gaggenau Servis</a
+http://www.servisadana.com/markalar/gaggenau-servis-adana/adana-gaggenau-servis-162.htm Adana Gaggenau Servis Adana Gaggenau Servis
 http://www.servisadana.com/markalar/demirdokum-servis-adana/adana-demirdokum-servisi-76.htm Adana Demirdöküm Servisi
 http://www.servisadana.com/hizmetler/termosifon-sofben-servis-adana/adana-termosifon-servisi-137.htm Adana Termosifon Servisi
  
